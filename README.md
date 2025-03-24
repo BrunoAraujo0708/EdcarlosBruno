@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do EdcarlosBruno 😁
+## Bem-vindo(a) ao perfil do Bruno Araujo 😁
 
  <div>
   <a href="https://github.com/BrunoAraujo0708">
